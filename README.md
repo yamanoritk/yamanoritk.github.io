@@ -1,0 +1,1 @@
+# yamanoritk.github.io
